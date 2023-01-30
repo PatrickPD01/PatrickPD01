@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PatrickPD01
-- 👋 20 years old, denmark
+- 👋 21 years old, denmark
 - 👀 I’m interested in graphic design 
 -
 
