@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PatrickPD01
+- 👋 Hi, I’m Patrick
 - 👋 25 years old, denmark
 - 👀 Graphic desinger based in Denmark
 -
